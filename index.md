@@ -1,3 +1,5 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+## I'm don't intend to talk about anything in particular so you are just gonna have to deal with that..
+
+
